@@ -7,3 +7,5 @@ Saiba mais em [ricardobraz.com.br](http://google.com.br)
 Gostou do curso? Ajude com uma doação =)
 
 Ricardo Braz Santos
+
+Clarissa Valente Braz
